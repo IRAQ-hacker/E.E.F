@@ -6,11 +6,11 @@ section One : 1- facebook hack I changed the name so that the person does not su
 
 I ask you not to use it to against blackmailers, and I am not responsible for anyone who uses it for anything illegal
 
-# Tool link :
+# Enter For get Tool link 👇👇:
 
 [![TOOL](https://img.shields.io/badge/Link%20-Tool-red)](https://github.com/IRAQ-hacker/Hack)
 
-# contact with me :
+# contact with me 👇👇 :
 
 [![TELEGRAM](https://img.shields.io/badge/channel-telegram-yellow)](https://t.me/Professional_school)
 
