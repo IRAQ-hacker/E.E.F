@@ -1,4 +1,4 @@
-# E.E.F
+# E.E.F or Electronic extortion fighter .
 
 Meaning from the word E.E.F Electronic extortion fighter
 It is a tool to fight electronic blackmail It consists of two parts:
